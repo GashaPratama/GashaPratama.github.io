@@ -1,0 +1,1 @@
+# Samakan_Kartu
